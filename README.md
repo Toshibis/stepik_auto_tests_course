@@ -1,3 +1,3 @@
 # stepik_auto_tests_course
-Home work
-https://stepik.org/lesson/187065/step/7?unit=161976
+It's my Home work. Thank you for your time)
+
